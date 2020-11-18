@@ -1,0 +1,1 @@
+Cereal, milk, bowl, spoon
